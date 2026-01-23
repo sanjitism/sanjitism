@@ -12,6 +12,7 @@ hi im <b>Elise</b> but I also go by <b>Ciel</b> <img src=https://files.catbox.mo
 <p align=center>
 i love kuroshitsuji a lott. um. i love nightcord at 25, i love vocaloid in general ...  
 <br/>i love ddlc and genshin hsr etc hoyoverse slop.... i also love vanitas no carte.
+<br/>i love everything horror i love ib i love mad father i love lgts i love yuri Ok
 <p align=center>
 if u like any of these please pleaaseee bmf. <img src=https://files.catbox.moe/44uh28.gif />
 ‎ ‎ 
