@@ -26,7 +26,7 @@ if u like any of these please pleaaseee bmf. <img src=https://files.catbox.moe/4
 
 <p align=center>
 <img src=https://files.catbox.moe/l0b2gq.gif /> shoutout to my best friends everr: shuri my mama, finn my brother,
-<br/>dani the goat, mori the legend, kage the #1 shu yume <img src=https://files.catbox.moe/l0b2gq.gif />
+<br/>mori the legend, kage the #1 shu yume <img src=https://files.catbox.moe/l0b2gq.gif />
 ‎ 
   <p align=center>‎
 <img src=https://files.catbox.moe/r61aku.gif /><img src=https://files.catbox.moe/5k6wph.webp /><img src=https://files.catbox.moe/xmkeju.gif /><img src=https://files.catbox.moe/1be84n.gif /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7b926842-0379-49b4-bed3-d75589677b1e" />
